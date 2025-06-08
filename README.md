@@ -28,7 +28,7 @@
 
 📫 Contact Me
   - ✉️ Email: **nairahassan550@gmail.com**
-  - 💼 LinkedIn: [linkedin.com/in/NairaHassanAnwar](https://linkedin.com) *(← replace with your real LinkedIn URL)*
+  - 💼 LinkedIn: [linkedin.com/in/NairaHassanAnwar](linkedin.com/in/naira-hassan-2a5014309) 
   - 🌐 Portfolio: [YourWebsite.com](https://yourwebsite.com) *(optional)*
 
 😄 Pronouns
